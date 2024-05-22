@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @totodile2003
 - 👀 I’m interested in Video Games, Anime, Manga, and Coding
-- 🌱 I’m currently learning Computer Science B-Tech
-- 📫 How to reach me thomasthewiseboy@gmail.com
+- 📫 How to reach me wisemanthomas03@gmail.com
